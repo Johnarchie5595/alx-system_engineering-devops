@@ -1,1 +1,1 @@
-Multiple permissions task
+7. Everybody task
